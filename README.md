@@ -3,7 +3,6 @@ whatever
 Hello World!
 
 An Awesome Wave
-
 Because the Internet, etc.
 Best in the World
 Black on Both Sides
