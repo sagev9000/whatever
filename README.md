@@ -15,7 +15,7 @@ Drukqs
 Duality
 Exmilitary, etc.
 Exposition
-The Glod, Pt. 2
+The Glow, Pt. 2
 good kid, m.A.A.d city
 Good News For People Who Love Bad News
 Graduation
